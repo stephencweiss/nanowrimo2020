@@ -1,0 +1,15 @@
+{
+  "scripts": {
+    "wordcount": "node ./wordcounter.js >> wordcountlog.md"
+  },
+  "dependencies": {
+    "wordcount": "^1.1.1"
+  },
+  "name": "nanowrimo",
+  "version": "0.0.1",
+  "description": "Tracking progress on nanowrimo",
+  "main": "index.js",
+  "author": "Stephen Weiss <stephen.c.weiss@gmail.com>",
+  "license": "MIT",
+  "private": true
+}
