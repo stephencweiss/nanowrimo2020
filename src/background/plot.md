@@ -2,6 +2,12 @@ General plot notes
 
 # background
 
+# hook
+
+three siblings, two brothers and a sister return home when their father disappeared. what begins as an (ab)normal reunion of an estranged family turns into a race against time as the siblings learn to work together to find out what really happened to their father and what he was working on that seems the reason for his disappearance. along the way they realize that family isn't always what you think, but it's the one thing you can count on.
+
+## a little color
+
 three siblings, two brothers and a sister return to their childhood home upon the news that their father's disappeared. (the mother's death years before had been a final straw for the family which had not been in the same room together since - their father was the type who was never around, a workaholic, and had never forged a relationship with any of his children -- his daughter, the youngest of the three being the only one who had continued to try, albeit from a distance).
 
 amy was the first one called because she's in town and John sr.'s dog was outside the front door barking to be let in for an hour before the neighbors called her.
