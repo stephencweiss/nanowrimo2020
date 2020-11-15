@@ -1,18 +1,14 @@
-**Chapter Summary**
-
-John Sr. disappears. Brothers come to town when Amy calls. Find the house a mess, but no sign of a crime, so cops won't investigate.
-
-father's disappearance was sudden and caught the children off guard - the brothers fly into town all and descend on their childhood home. Amy's already there looking through the mess that is their father's house. it's the first time they've seen one another in several years. she tells them what she knows - that dad's disappeared, the police won't investigate.
-
 # Chapter 1
 
-The house looked just like John remembered it, though perhaps a little more worn. The tire he and Patrick had hung from the branch of the maple when they were kids, when they were still best friends, was swinging gently in the breeze. How long had it been since he'd been home - or spoken to Patrick for that matter? Ten years at least. Probably more.
+The house looked just like he remembered it, though perhaps a little more worn. Even the tire swing was exactly where he'd left it, swinging gently in the autumn breeze. The leaves on the maple, the same one he and Patrick had hung that swing from when they were kids, when they were still best friends, had turned a brilliant red. How long had it been since he'd been home - or spoken to Patrick for that matter? Ten years at least. Probably more.
 
-John parked in the driveway, grabbed his overnight bag from the backseat - he'd assured Alexa that the trip would only be a day or two and when he got back they could talk through everything - and got out of the car.
+He parked the rental car in the driveway, grabbed his overnight bag from the backseat and got out. With any luck, this would be a short trip. Really, it needed to be. He'd assured Alexa that he'd be back in a day or two - there had to be a explanation and Amy was probably overreacting, after all, he'd reasoned, if there was actually a problem, the police would be involved - and when he got home they would talk through everything.
 
-Amy must have heard the tires spinning on the loose gravel because when John looked up she was standing in the doorway. Under different circumstances she would have smiled. John failed to suppress his own smile which crept into the corners of his lips and inched them upwards as he neared the door. Hers was the first friendly face he'd seen in what seemed like weeks. He pulled the door open, dropped his duffel on the threshold and enveloped her slight frame in his massive arms, "How you doing, kid?"
+Amy must have heard the tires spinning on the loose gravel because when he looked up she was standing in the doorway. Under different circumstances she would have smiled. Meanwhile, his failure to suppress a smile despite the circumstances only served as further evidence that she'd always been the most disciplined sibling. He couldn't help it. Hers was the first friendly face he'd seen in weeks. His shoulders, which he hadn't noticed he'd been clenching, relaxed at the sight of her. He dropped the duffel on the threshold and pulled her close, enveloping her slight frame in his massive arms, "How you doing, kid?"
 
-Her body responded reflexively by sagging. Safe and secure in her big brother's arms, it rebelled by relaxing, something she'd not allowed herself since she'd first called the police to report their father was missing.
+She'd refused to let herself relax since she first called the police to report that their father was missing. In her brother's arms, however, her body no longer seemed to listen and she let out a small sigh, "It's so good to see you J.J. Thank you for coming."
+
+"Of course. Let's get out of the cold and you can catch me up on what's going on."
 
 # Chapter 2
 
