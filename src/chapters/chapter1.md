@@ -12,4 +12,28 @@ She'd refused to let herself relax since she first called the police to report t
 
 # Chapter 2
 
-John released Amy from his grasp and they went inside the house. The shades are drawn and there's a definite musk in the air. Even the layer of dust blanketing every horizontal surface were no surprise - dad had always been useless around the house. When mom was alive, she'd made sure the house ran on time, and after she'd passed, the responsibility passed to the kids. Dad just worked all the time. Most of the time he was down at the lab, not getting home until well after dinner, but even on the nights when he got home early he wasn't around. Instead, he'd go straight to his office where he'd close the door, light a cigar, and bury himself in more work.
+It took a moment for his eyes to adjust to the light - or lack there of. No one had bothered to turn any lights on in the living room, so the only light was the little that managed to sneak past the tightly drawn curtains. His hand instinctively reached for the switch on the wall, but no lights came on.
+
+"Burnt out."
+
+"Huh, strange. I know dad's always been mostly useless around the house, but to let all of the lights burn out and not change them feels... well, it feels unusual. The dust on the other hand - that's no surprise." Every horizontal surface was caked with dust. That's how it'd been ever since mom had passed - or would have been had it not been for Patrick, Amy, and him. Patrick had moved to New York years ago, and he hadn't stepped foot in the house for even longer, so taking care of dad had fallen on Amy - not that she didn't have plenty on her plate as it is.
+
+"Yeah, he's been even more _himself_ of late. Working all the time. It's been all I can do to get him to come over for Sunday dinner with me and Beau." Dad had always been a workaholic. Growing up he'd stay at the lab until well after the family had sat down for dinner. When he did finally get home, he'd head straight to his study, where he'd pour himself a whisky and light a cigar to bury himself in more work, but only after closing the big oak door.
+
+A light came on in the hallway, not all of them had burnt out apparently, and a few seconds and several footsteps later, Patrick stepped into view. Backlit from the hall light, his features were obscured, but, even after years of not seeing him or hearing his voice, there was no doubt who was standing in the doorway.
+
+"Amy said you'd come. I wasn't so sure."
+
+"Pat, please!"
+
+"No, no, it's alright." He said as reassuringly as he could to Amy before turning to face his little brother's outline, "I can't say I wasn't wondering the same about you."
+
+"Ha - I'm not the one who swore I'd never step foot in this house again!"
+
+"Guys! Now's not the time to get into a pissing match about something that happened over a decade ago! You can duke it out after we find dad. Until then, try to act like the grown men you are. For me. For dad."
+
+"Fine by me. Sorry Amy. Pat?" A grunt emanated from the outline in the doorway which he decided to interpret as assent. "What do we know so far?"
+
+## Chapter 3
+
+Amy led them into the kitchen which at least had working lights and less dust, and outlined what she'd been able to piece together. It wasn't much.
