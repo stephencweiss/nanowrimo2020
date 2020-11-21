@@ -4,36 +4,50 @@ The house looked just like he remembered it, though perhaps a little more worn. 
 
 He parked the rental car in the driveway, grabbed his overnight bag from the backseat and got out. With any luck, this would be a short trip. Really, it needed to be. He'd assured Alexa that he'd be back in a day or two - there had to be a explanation and Amy was probably overreacting, after all, he'd reasoned, if there was actually a problem, the police would be involved - and when he got home they would talk through everything.
 
-Amy must have heard the tires spinning on the loose gravel because when he looked up she was standing in the doorway. Under different circumstances she would have smiled. Meanwhile, his failure to suppress a smile despite the circumstances only served as further evidence that she'd always been the most disciplined sibling. He couldn't help it. Hers was the first friendly face he'd seen in weeks. His shoulders, which he hadn't noticed he'd been clenching, relaxed at the sight of her. He dropped the duffel on the threshold and pulled her close, enveloping her slight frame in his massive arms, "How you doing, kid?"
+Amy must have heard the tires spinning on the loose gravel because when he looked up she was standing in the doorway. As the smile spread across his face, hers was the first friendly one he'd seen in weeks, he called out across the yard, "How you doing, kid?"
 
-She'd refused to let herself relax since she first called the police to report that their father was missing. In her brother's arms, however, her body no longer seemed to listen and she let out a small sigh, "It's so good to see you J.J. Thank you for coming."
+Getting closer, he pulled her in for a hug - but not before he ruffled her hair like he used to when they were kids which earned him a smile and a small laugh. "It's good to see you J.J. - though I wish the reason were happier."
 
-"Of course. Let's get out of the cold and you can catch me up on what's going on."
+"Agreed. Now let's get out of the cold and you can catch me up."
 
 # Chapter 2
 
-It took a moment for his eyes to adjust to the light - or lack there of. No one had bothered to turn any lights on in the living room, so the only light was the little that managed to sneak past the tightly drawn curtains. His hand instinctively reached for the switch on the wall, but no lights came on.
+"Is the whole house like this?" A plume of dust had risen up when he dropped the duffel in the living room and all but one of the lights in the living room seemed to have burnt out, so the siblings were standing in darkness, illuminated only by the little light that managed to sneak past the curtains.
 
-"Burnt out."
+"No. The back of the house is better - or at least livable. I'd been trying to get Dad to let me have someone come out to help him but he always refused." Sounded like Dad. Mom had been the one who made sure the house ran on time and was clean. After she'd passed, the kids had tried to pick up the slack when it became clear Dad wouldn't, but one by one they all left town and only Amy had returned to even try to help. "Come on, I have water on the stove. I'll make some coffee and we can chat."
 
-"Huh, strange. I know dad's always been mostly useless around the house, but to let all of the lights burn out and not change them feels... well, it feels unusual. The dust on the other hand - that's no surprise." Every horizontal surface was caked with dust. That's how it'd been ever since mom had passed - or would have been had it not been for Patrick, Amy, and him. Patrick had moved to New York years ago, and he hadn't stepped foot in the house for even longer, so taking care of dad had fallen on Amy - not that she didn't have plenty on her plate as it is.
+He followed her through the maze that was the living room - stepping over piles of books strewn about the floor and trying to avoid brushing any horizontal, and many vertical surfaces, all caked with dust. "We should at least open a window and let some air circulate."
 
-"Yeah, he's been even more _himself_ of late. Working all the time. It's been all I can do to get him to come over for Sunday dinner with me and Beau." Dad had always been a workaholic. Growing up he'd stay at the lab until well after the family had sat down for dinner. When he did finally get home, he'd head straight to his study, where he'd pour himself a whisky and light a cigar to bury himself in more work, but only after closing the big oak door.
+Amy shrugged unenthusiastically. "Eh, you get used to it and it's not so bad in the back. Besides, you know how the neighbors are."
 
-A light came on in the hallway, not all of them had burnt out apparently, and a few seconds and several footsteps later, Patrick stepped into view. Backlit from the hall light, his features were obscured, but, even after years of not seeing him or hearing his voice, there was no doubt who was standing in the doorway.
+The kitchen looked just like he remembered. Like the rest of the house, it seemed frozen in time - though at least here the dust hadn't taken over. He could practically see his mom over the stove near the wall, and hear her yelling through the window above the sink for the kids to come in from playing in the yard.
 
-"Amy said you'd come. I wasn't so sure."
+The kettle on the stove was already whistling gently, so Amy walked over and pulled some coffee from the cupboard and started preparing a fresh pot.
 
-"Pat, please!"
+"Have you started drinking coffee then?" Before Amy could answer, a door creaked open down the hallway off the kitchen and a man stepped into it. Backlit, the man's features were obscured by shadows, but he knew instinctively it was Patrick.
 
-"No, no, it's alright." He said as reassuringly as he could to Amy before turning to face his little brother's outline, "I can't say I wasn't wondering the same about you."
+Patrick stopped at the threshold to the kitchen and leaned against the door. Holding a steaming mug up to his lips and sipped before breaking the silence, "Amy said you'd come. I wasn't so sure."
 
-"Ha - I'm not the one who swore I'd never step foot in this house again!"
+"Meanwhile you've wasted no time making yourself at home I see," he said, gesturing toward the room Patrick had exited from. "You know Dad never let any of us into his office. And are those Dad's slippers?"
 
-"Guys! Now's not the time to get into a pissing match about something that happened over a decade ago! You can duke it out after we find dad. Until then, try to act like the grown men you are. For me. For dad."
+"Oh J.J. Always such a rule follower. Surprised you came anyway. If memory serves, the last time I saw you, you were running out of here swearing you'd never step foot in this house again."
 
-"Fine by me. Sorry Amy. Pat?" A grunt emanated from the outline in the doorway which he decided to interpret as assent. "What do we know so far?"
+"Pat!"
 
-## Chapter 3
+"No, no, he's right." He said as reassuringly as he could to Amy before turning to face his little brother's outline, "Yeah, I didn't think I'd ever be back and I wouldn't be, except that Amy said it was important." Pausing for a moment and turning back toward Amy, "So, what exactly _is_ going on Ames?"
 
-Amy led them into the kitchen which at least had working lights and less dust, and outlined what she'd been able to piece together. It wasn't much.
+Amy poured the coffee into a mug and handed it to him. "Well, Dad's been even more _himself_ lately. Working even more than usual." Dad had always been a workaholic. Growing up they had barely seen him. He'd stay at the lab until well after the family had eaten dinner. When he did finally get home, he'd head straight to his office, where he'd pour himself a whisky, light a cigar, and bury himself in more work. Ever since, the smells of whisky and cigars had always reminded him of his father. "The one concession I'd wrung out of him was to come over for Sunday dinner. He'd grumble through the meals, but he was always there and always punctual. But he didn't show up this week. I tried calling a few times Sunday and when he didn't reply, I came by Monday morning before work. He wasn't here."
+
+"Did you check the lab? Wouldn't be the first time he slept there."
+
+"Yeah, I know. I called the lab on my way to the hospital, but it must have been too early because no one picked up. When I finally had a moment over lunch to call back, Margaret picked up and told me she hadn't seen Dad all morning."
+
+Patrick, who'd already heard the story continued to sip his coffee quietly in the doorway. "Okay, but even that's not conclusive, right? He could have been down in the lab and not come up to his office."
+
+"Agreed, and that was what I said too. At this point, things were weird, but I wasn't too worried. Dad's done stuff like this all our lives - though it was the first time he'd missed a dinner with Beau and me. So, I asked her to go looking and call me back. When she finally called back, she said he'd signed in on Saturday, signed out a few hours later, and none of the guards had seen him since.
+
+"So, at this point no one's seen Dad in at least two days and I really start to freak out. I call the police and explain the situation to them. The officer seemed to listen but I could tell she didn't really believe this was an emergency. She took down my information and said officers would be in touch. Two officers _did_ come by the house Monday evening, detectives..." At this point Amy started patting all of the pockets looking for something, eventually retrieving two business cards from the breast pocket of her shirt and reading aloud, "Smith and Wollensky."
+
+"And?"
+
+"Same story! They listened, they took notes, and they didn't seem to really believe me that anything was wrong! They kept going on about how Dad had always kept irregular hours and there were no signs of a break in. It was as if they were suggesting he'd just gone out for a walk and he'd be back soon. I know there's something more going on though. I know Dad. He'd never disappear like this!"
